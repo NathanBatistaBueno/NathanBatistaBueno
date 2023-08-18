@@ -1,6 +1,7 @@
 ### Seja bem vindo ao meu perfil! ✨
-### "Cuidado com as voltas que o mundo dá. Hoje você lança as palavras, amanhã sente o efeito delas". 🏹
-<img src="https://media.tenor.com/fzFXgBniBJ0AAAAd/freddy-freddy-fazbear.gif" alt="Freddy Freddy Fazbear GIF - Freddy Freddy Fazbear Freddy Five Night GIFs"/>![image](https://github.com/NathanBatistaBueno/NathanBatistaBueno/assets/142628035/b2fae0d3-f52c-4262-a1ec-1e68f6b55311)
+### "Eu sempre soube que eu era uma estrela, e agora o resto do mundo parece concordar comigo."🧸
+![](https://media.tenor.com/fzFXgBniBJ0AAAAd/freddy-freddy-fazbear.gif)
+
 
 
 
