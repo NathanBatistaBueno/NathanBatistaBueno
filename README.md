@@ -2,6 +2,7 @@
 ### "Eu sempre soube que eu era uma estrela, e agora o resto do mundo parece concordar comigo."🧸
 ![](https://media.tenor.com/fzFXgBniBJ0AAAAd/freddy-freddy-fazbear.gif)
 
+
 <!--
 **NathanBatistaBueno/NathanBatistaBueno** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
