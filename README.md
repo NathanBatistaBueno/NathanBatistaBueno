@@ -1,5 +1,5 @@
 ### Seja bem vindo ao meu perfil! ✨
-### "Eu sempre soube que eu era uma estrela, e agora o resto do mundo parece concordar comigo."🧸
+### "𝐀𝐛𝐚𝐧𝐝𝐨𝐧𝐞 𝐬𝐮𝐚𝐬 𝐝𝐨𝐫𝐞𝐬 𝐞 𝐧ã𝐨 𝐚 𝐞𝐬𝐩𝐞𝐫𝐚𝐧ç𝐚 𝐞𝐦 𝐝𝐢𝐚𝐬 𝐦𝐞𝐥𝐡𝐨𝐫𝐞𝐬."🧸
 ![](https://media.tenor.com/fzFXgBniBJ0AAAAd/freddy-freddy-fazbear.gif)
 
 
